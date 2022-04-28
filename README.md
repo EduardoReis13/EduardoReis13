@@ -1,6 +1,6 @@
 ### eai gurizada👋
 
-<!--
+
 
  * 🔭 Calistênico e futuro MR.Olympia
  * 🌱 Téc.Informática
