@@ -8,5 +8,6 @@
  * 😄 Pronouns: ACA/DEMIA
  
  ### Redes Sociais:
-    📷 Instagram.com/reis_duardo/
+    📷 https://Instagram.com/reis_duardo/
+    🐦 https://Twitter.com/Duardo_Acordeon/    
 
