@@ -1,5 +1,5 @@
 ### eai gurizada👋
-![a](https://i.gifer.com/MP.mp4)
+![a](https://viciados.net/wp-content/uploads/2020/11/berserk-30104.jpg)
 
 
  * 🔭 Calistênico e futuro MR.Olympia
@@ -13,4 +13,4 @@
  * 🐦 [Twitter](https://twitter.com/Duardo_Acordeon/)
 
  
- ![a](https://c.tenor.com/GB2kusUamFYAAAAC/guts-berserk-guts.gif)
+ ![a](https://i.imgur.com/i3qlSIs.jpg)
