@@ -1,5 +1,5 @@
 ### eai gurizada👋
-
+![](https://i.gifer.com/MP.gif)
 
 
  * 🔭 Calistênico e futuro MR.Olympia
@@ -13,4 +13,4 @@
     🐦 https://Twitter.com/Duardo_Acordeon/    
 
  
- ![](https://wallpapercave.com/wp/wp6823378.jpg)
+ ![](https://c.tenor.com/GB2kusUamFYAAAAC/guts-berserk-guts.gif)
