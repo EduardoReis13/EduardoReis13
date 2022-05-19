@@ -1,5 +1,5 @@
 ### eai gurizada👋
-![a](https://viciados.net/wp-content/uploads/2020/11/berserk-30104.jpg)
+![a](berserk_armor.gif)
 
 
  * 🔭 Calistênico e futuro MR.Olympia
