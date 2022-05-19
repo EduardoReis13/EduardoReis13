@@ -1,5 +1,5 @@
 ### eai gurizada👋
-![](armor.gif)
+![](berserk-guts.gif)
 
 
  * 🔭 Calistênico e futuro MR.Olympia
