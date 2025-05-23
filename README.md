@@ -18,12 +18,6 @@
 
 ---
 
-## 📈 Estatísticas do GitHub
-
-![Eduardo's GitHub Stats](https://github-readme-stats.vercel.app/api?username=EduardoReis13&show_icons=true&theme=tokyonight)
-
----
-
 
  
 
