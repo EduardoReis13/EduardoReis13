@@ -5,7 +5,7 @@
 
 ---
 
-## 👨‍💻 **Programmer andcoffee enjoyer ☕💻**
+## 👨‍💻 **Programmer and coffee enjoyer ☕💻**
 
 - 🎓 Técnico em Informática  
 - 📧 Contato: [eduardoreisrodrigues3@gmail.com](mailto:eduardoreisrodrigues3@gmail.com)
